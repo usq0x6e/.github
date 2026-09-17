@@ -1,4 +1,4 @@
-# usq0x6e
+# usq0x6e.co
 
 **engineering studio**
 
